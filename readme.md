@@ -1,3 +1,3 @@
-#Learning to Push to Github
+# Learning to Push to Github
 
 @icanooo on Instagram
